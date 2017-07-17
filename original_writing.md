@@ -3,9 +3,9 @@
  Of a beginning  
  Of a journey, an idea, a steep drop    
 
-- Into a consuming heat  
-- Where throats are perpetually dry  
-- And the key to water is lost 
+ Into a consuming heat  
+ Where throats are perpetually dry  
+ And the key to water is lost 
 
 - An iron grip holds me against my will   
 - The vines green and alive  
