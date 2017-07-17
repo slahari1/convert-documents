@@ -1,7 +1,7 @@
 # *Begin*
-> I find myself on the edge  
->> Of a beginning  
->> Of a journey, an idea, a steep drop  
+ I find myself on the edge   
+ Of a beginning  
+ Of a journey, an idea, a steep drop    
 
 - Into a consuming heat  
 - Where throats are perpetually dry  
